@@ -2,7 +2,7 @@
 - I’m interested in Stranger things , Mlp , Avengers , Mha , scream , Harry potter , sonic 
 - I love to play Among us , Ponytown / Events , Sonic , Roblox , and anime games! Also Talkie Dont ask!?
 - I have social Anxiety so i really dont talk much but when i feel like it i go crazy!
-- i'm always at the cave area and mostly at the docks mostly afk! w2i and rbyi before interacting with me unless your my friend and have a green name! i also have td/tt so dont touch me unless your my friend! i dont put td/tt in my name sometimes but plz dont touch me! im asking politle! dont just keep touching me!
+- i'm always at the cave area and mostly at the docks mostly afk! w2i and rbyi before interacting with me unless your my friend and have a green name! i also have td/tt so dont touch me unless your my friend! i dont put td/tt in my name sometimes but plz dont touch me! im asking politle! dont just keep touching me! Oh and also dont cover me plz!
 - Pronouns: i go by she/her 🏳️‍⚧️🏳️‍🌈
 - ⚡Fun fact: I'm mexican and brazilian so welcome to my content! Check out my tiktok! - deajahlee
 - i love my friend  !!st1nk3r!!  DNC
