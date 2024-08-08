@@ -1,8 +1,10 @@
 - Hi, I’m @LaughRiotX im lesbian and straight! Rainbow dash kisser was here!
-- I’m interested in Stranger things , Mlp , Avengers , Mha , scream , Harry potter!
+- I’m interested in Stranger things , Mlp , Avengers , Mha , scream , Harry potter , sonic 
 - I love to play Among us , Ponytown / Events , Sonic , Roblox , and anime games! Also Talkie Dont ask!?
 - I have social Anxiety so i really dont talk much but when i feel like it i go crazy!
-- i'm always at the cave area and mostly at the docks mostly afk! w2i and rbyi before interactimg with me unless your my friend and have a green name!
+- i'm always at the cave area and mostly at the docks mostly afk! w2i and rbyi before interacting with me unless your my friend and have a green name! i also have td/tt so dont touch me unless your my friend!
 - Pronouns: i go by she/her 🏳️‍⚧️🏳️‍🌈
 - ⚡Fun fact: I'm mexican and brazilian so welcome to my content! Check out my tiktok! - deajahlee
 - i love my friend  !!st1nk3r!!  DNC
+- My favorite avengers are Loki , cap. america , natasha , and wanda!
+-  im a tomboy so i might have boy oc and cos!
