@@ -7,4 +7,4 @@
 - ⚡Fun fact: I'm mexican and brazilian so welcome to my content! Check out my tiktok! - deajahlee
 - i love my friend  !!st1nk3r!!  DNC
 - My favorite avengers are Loki , cap. america , natasha , and wanda!
--  im a tomboy so i might have boy oc and cos!
+-  im a tomboy so i might have boy oc and cos when i feel like it!
