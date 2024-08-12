@@ -6,5 +6,5 @@
 - Pronouns: i go by she/her 🏳️‍⚧️🏳️‍🌈
 - ⚡Fun fact: I'm mexican and brazilian so welcome to my content! Check out my tiktok! - deajahlee
 - i love my friend  !!st1nk3r!!  DNC
-- My favorite avengers are Loki , cap. america , natasha , and wanda!
+- My favorite avengers are Loki , cap. america , natasha , and wanda! oh and Thor!
 -  im a tomboy so i might have boy oc and cos when i feel like it!
